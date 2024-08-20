@@ -10,6 +10,6 @@ me chamo Lara Silva.
   
   
 ## Você pode entrar em contato comigo:  📫
-0001163342531sp.al.educacao.sp.gov.br 
+0001163342531@sp.al.educacao.sp.gov.br 
 
 
