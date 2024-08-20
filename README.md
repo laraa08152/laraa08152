@@ -1,4 +1,4 @@
-## Seja bem vindo ao meu perfil!
+## Seja bem vindo ao meu perfil!❤️
 
 me chamo Lara Silva.
 
@@ -6,10 +6,10 @@ me chamo Lara Silva.
 
 - Estou estudando no Alura.
   
-- 
+- Utilizo esse espaço para minha organizaçâo e compartilhamento dos meus projetos desenvolvidos!
   
   
 ## Você pode entrar em contato comigo:  📫
-00011633
+0001163342531sp.al.educacao.sp.gov.br 
 
--->
+
